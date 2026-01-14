@@ -9,7 +9,7 @@ Applied econometrics, research, and financial analysis.
 
 ## Research
 Econometric analysis (under faculty review).  
-Full paper coming soon.
+PDF: [Download the paper](ECON Project - Final Draft (Andrew,DT).docx
 
 ## Contact
 - LinkedIn
