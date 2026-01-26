@@ -1,5 +1,5 @@
 
-# Andrew Wheaton
+# Education
 
 - B.S. Business Administration - Finance (Minor: Business Analytics)
 - B.A. Modern Languages - Spanish 
